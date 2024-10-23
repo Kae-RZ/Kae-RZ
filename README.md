@@ -1,2 +1,2 @@
-🏫 UNIMAS - Network Computing
+🏫 UNIMAS - Network Computing \\
 🚩 Kuching, Sarawak
